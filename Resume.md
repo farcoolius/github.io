@@ -1,7 +1,7 @@
 # Farhan Hassan
 
 fahassan003@icloud.com
-http://www.linkedin.com/in/Farhan Hassan
+http://www.linkedin.com/in/FarhanHassan
 
 ## Summary
 
